@@ -2,6 +2,8 @@
 
 Hello fellow people! SSLC (Secondary School Leaving Certificate) is the final requirement in the mandatory primary education in Kerala, and SSLC exams are one of the most important exams in all of Kerala. This page was prepared to provide you with all the study materials that you may require to gain maximum marks in your exams. Good luck!
 
+Note: None of these materials are made by me. I am solely distributing these for your convenience, as I've noticed the style of other websites are rather outdated and very difficult to navigate. You can find the credits either in this page or in the link.
+
 The books will change next year. I will update this page if I have time and the resources.
 
 ## Table of Contents
